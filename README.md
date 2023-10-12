@@ -1,0 +1,6 @@
+- 👋 Hi, I’m @uhhdxni
+- 👀 I’m interested in scripting, modelling and game development.
+- 🌱 I’m currently learning Python and LUA.
+- 💰 My commissions are open (5$ Minimum)
+- 📫 Contact me on discord "uhhdxni" or roblox "he4rtsformoonlight".
+- 😊 Thanks for reading!
